@@ -1,0 +1,2 @@
+# 85d0c44d-534b-497d-8863-f9e134408177-hero-3
+Hero section variant 3 for 85d0c44d-534b-497d-8863-f9e134408177
